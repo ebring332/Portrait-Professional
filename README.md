@@ -214,4 +214,4 @@ Portrait Professional is available as a complete free version with all features 
 Unlock the full potential of your portraits today with Portrait Professional! Download now and start enhancing your images effortlessly.
 
 ---
-**Last updated:** 2026-11-11 18:16:10 UTC
+**Last updated:** 2026-11-12 01:13:42 UTC
